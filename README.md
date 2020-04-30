@@ -1,4 +1,4 @@
 # GAT  Hi every body.
 
 From GAT
- Charlotte
+ Charlotte, NC
